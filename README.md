@@ -1,2 +1,2 @@
 # Resume
-Resume of some individuals and relevant honor materials
+Resume and some honors and certificates
